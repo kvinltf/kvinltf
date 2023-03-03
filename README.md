@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Software Developement**
 
-- 📫 How to reach me **kevin.ltf@icloud.com**
+- 📫 How to reach me **kevin999990@hotmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/kevin-lu-6419b3b5/](https://www.linkedin.com/in/kevin-lu-6419b3b5/)
 
